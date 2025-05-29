@@ -30,7 +30,7 @@ Let’s learn and grow together!
 
 📫 Reach me via:  
 [![LinkedIn](www.linkedin.com/in/vipaporn-pakpairee-987b66362)  <br>
-📄 [View My CV](https://github.com/RocketGoose008/RocketGoose008/blob/main/Ice-Vipaporn-CV.pdf) <br>
+📄 [View My CV](https://github.com/RocketGoose008/RocketGoose008/blob/main/CV-VipapornPakpairee.pdf) <br>
 📧 Email: vpakpairee@gmail.com <br>
 📲 Add me via Line ID: `icevp_52`  <br>
 
